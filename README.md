@@ -15,7 +15,7 @@ Innovative **3D Printing • IoT • Robotics** — turning ideas into reality.
 **Team:** Engineers, makers, and interns who love building the future.
 
 Website: [passion3dworld.com](https://www.passion3dworld.com/)  
-YouTube: (https://www.youtube.com/@toaost)
+YouTube: [(https://www.youtube.com/@toaost)]
 
 ---
 
